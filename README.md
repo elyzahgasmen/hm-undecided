@@ -1,2 +1,2 @@
 # hm-undecided
-hm.
+idk buddy
